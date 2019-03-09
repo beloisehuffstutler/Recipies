@@ -33,7 +33,7 @@ Place lentils, vegetables, and potatoes in a stockpot over medium heat.
 Stir in water as needed to attain desired consistency. Serve warm with cilantro or green onions.
 ***
 
-Original Link: https://www.allrecipes.com/recipe/60007/yellow-dhal-sweet-potato-soup/?internalSource=rotd&referringId=84&referringContentType=Recipe%20Hub
+Original Link: [Sweet Potato Soup](https://www.allrecipes.com/recipe/60007/yellow-dhal-sweet-potato-soup/?internalSource=rotd&referringId=84&referringContentType=Recipe%20Hub)
 
 ***
 ![Nutritional Facts](https://i.ibb.co/82YNw15/Sweet-Potato-Soup.png)
